@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Hk-nb 
 - 👀 I’m interested in ethical hacking
-- 🌱 I’m currently grade 11 student in ethiopia 
+- 🌱 I’m currently grade 11 student in Ethiopia 
 - 💞️ I’m looking to collaborate on ict sector
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
